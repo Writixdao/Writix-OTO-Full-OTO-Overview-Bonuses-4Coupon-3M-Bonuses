@@ -12,6 +12,74 @@
 
 <hr class="" data-start="1634" data-end="1637" />
 
+# ✍️ Writix AI – Full Funnel + Exclusive Bonus Vault 🎁
+
+## 🔥 Writix AI All-Inclusive Deal  
+💡 Get Writix AI Elite + ALL Upgrades in One Powerful Package  
+Type in your browser:  
+`jvz1[dot]com/c/672499/416134`
+
+---
+
+## 🔹 Writix AI Front-End (FE): Writix AI Elite  
+Type: `jvz8[dot]com/c/672499/416125`
+
+---
+
+## 🔄 Optional Upgrades (OTOs & Bumps)
+
+- **Bump 1: Writix AI Unlimited**  
+  Type: `jvz2[dot]com/c/672499/416136`
+
+- **Bump 2: All-Inclusive Add-On**  
+  Type: `jvz7[dot]com/c/672499/417489`
+
+---
+
+### 🚀 Main OTOs
+
+- **OTO 1: Writix AI PRO**  
+  Type: `jvz9[dot]com/c/672499/416126`
+
+- **OTO 2: Writix AI Reseller**  
+  Type: `jvz6[dot]com/c/672499/416128`
+
+  - **Bump: Reseller 120 Extra**  
+    Type: `jvz6[dot]com/c/672499/416138`
+
+- **OTO 3: Engagi AI PRO**  
+  Type: `jvz3[dot]com/c/672499/416130`
+
+- **OTO 4: Blogi AI PRO**  
+  Type: `jvz3[dot]com/c/672499/416132`
+
+---
+
+## 🎁 Check Bonus Page  
+Unlock your exclusive bonuses here:  
+`williamreview[dot]com/writix-ai`
+
+---
+
+## 💥 Bonus Vault Access  
+🌟 **5,000+ Mega Bonuses – Valued at $2,976,749+**  
+Grab them here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase via any link above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. Confirm your email — you’ll receive **ALL bonuses within 12 hours**.
+
+---
+
+✅ **Affiliate ID Check**  
+At checkout, make sure it says:  
+**Affiliate: 672499 – William Johnson**
+
 <h2 class="" data-start="1639" data-end="1694">Writix OTO Breakdown: What You Get with the Upgrades</h2>
 <h3 class="" data-start="1696" data-end="1725">🔥 <strong data-start="1703" data-end="1725">Writix Pro (OTO 1)</strong></h3>
 <p class="" data-start="1726" data-end="1826">If the front-end is great, <strong data-start="1753" data-end="1767">Writix Pro</strong> takes things to a whole new level.<br data-start="1802" data-end="1805" />With Pro, you unlock:</p>
@@ -102,3 +170,70 @@
 <p class="" data-start="4635" data-end="4783">Skip them, and you’ll hit limits fast.<br data-start="4673" data-end="4676" />Grab them, and you unlock the full power of AI automation, unlimited creation, and even new income streams.</p>
 <p class="" data-start="4785" data-end="5009">If you’ve already decided to get Writix, I strongly recommend going for at least the <strong data-start="4870" data-end="4885">Pro upgrade</strong>. And if you see the bigger opportunity, grabbing <strong data-start="4935" data-end="4945">Agency</strong> and <strong data-start="4950" data-end="4962">Reseller</strong> could be the smartest move you make this year.</p>
 <p class="" data-start="5011" data-end="5166">🔗 <strong data-start="5014" data-end="5107">Ready to take Writix to the max? Grab your copy and the OTOs before the launch deal ends!</strong><br data-start="5107" data-end="5110" />(Trust me, you don’t want to miss the one-time pricing.)</p>
+# ✍️ Writix AI – Full Funnel + Exclusive Bonus Vault 🎁
+
+## 🔥 Writix AI All-Inclusive Deal  
+💡 Get Writix AI Elite + ALL Upgrades in One Powerful Package  
+Type in your browser:  
+`jvz1[dot]com/c/672499/416134`
+
+---
+
+## 🔹 Writix AI Front-End (FE): Writix AI Elite  
+Type: `jvz8[dot]com/c/672499/416125`
+
+---
+
+## 🔄 Optional Upgrades (OTOs & Bumps)
+
+- **Bump 1: Writix AI Unlimited**  
+  Type: `jvz2[dot]com/c/672499/416136`
+
+- **Bump 2: All-Inclusive Add-On**  
+  Type: `jvz7[dot]com/c/672499/417489`
+
+---
+
+### 🚀 Main OTOs
+
+- **OTO 1: Writix AI PRO**  
+  Type: `jvz9[dot]com/c/672499/416126`
+
+- **OTO 2: Writix AI Reseller**  
+  Type: `jvz6[dot]com/c/672499/416128`
+
+  - **Bump: Reseller 120 Extra**  
+    Type: `jvz6[dot]com/c/672499/416138`
+
+- **OTO 3: Engagi AI PRO**  
+  Type: `jvz3[dot]com/c/672499/416130`
+
+- **OTO 4: Blogi AI PRO**  
+  Type: `jvz3[dot]com/c/672499/416132`
+
+---
+
+## 🎁 Check Bonus Page  
+Unlock your exclusive bonuses here:  
+`williamreview[dot]com/writix-ai`
+
+---
+
+## 💥 Bonus Vault Access  
+🌟 **5,000+ Mega Bonuses – Valued at $2,976,749+**  
+Grab them here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase via any link above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. Confirm your email — you’ll receive **ALL bonuses within 12 hours**.
+
+---
+
+✅ **Affiliate ID Check**  
+At checkout, make sure it says:  
+**Affiliate: 672499 – William Johnson**
